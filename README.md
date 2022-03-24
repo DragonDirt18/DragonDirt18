@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DragonDirt18
+- 🌱 I’m currently learning JAVA,JS,HTML,SQL
+- 📫 How to reach me:
+- fb:
+- 
